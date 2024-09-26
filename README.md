@@ -1,3 +1,1 @@
 # sgolla2_smunukot_assignment1
-# sgolla2_smunukot_assignment1
-# sgolla2_smunukot_assignment1
